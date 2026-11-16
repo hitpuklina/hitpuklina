@@ -1,3 +1,3 @@
-# Kapybuška, Matyáš, Pinkokolina
+# Kapybuska, Matyas, Pinkokolina
 
 Oficiální fotografie moderátora HitPuklíny.
