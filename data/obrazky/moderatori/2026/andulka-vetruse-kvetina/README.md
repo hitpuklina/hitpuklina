@@ -1,0 +1,1 @@
+Oficiální fotografie moderátorů HitPuklíny
